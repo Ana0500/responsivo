@@ -1,2 +1,2 @@
 # responsivo
-##HAHAHAHA:japanese_ogre:
+HAHAHAHA:japanese_ogre:
